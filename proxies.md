@@ -25,9 +25,7 @@
 
 ### UPDATES:
 
-**march 8th**
-
-**added proxies and movies**
+**march 8th | added proxies and movies**
 
 ---
 
