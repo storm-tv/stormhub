@@ -20,6 +20,15 @@
 
 
 
+### this repo will be updated frequently!! ### upd log below
+
+### UPDATES:
+
+
+
+
+
+
 ### kitty cat | my personal fav | games, apps, fast proxy
 
 https://giddyismyman.gurdit.com/ <br>
