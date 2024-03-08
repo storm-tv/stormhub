@@ -4,8 +4,7 @@
 extra: some of this is copied from other proxy lists, some of them ive found.
 
 ## credit for the lists:
-[byepasshub]([
-](https://github.com/wea-f/ByePassHub/tree/main)
+[byepasshub](https://github.com/wea-f/ByePassHub/tree/main)
 scpwolf
 
 
