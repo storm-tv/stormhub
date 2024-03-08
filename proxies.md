@@ -2,6 +2,8 @@
 
 ## heads up: some of this is copied from other proxy lists, some of them ive found.
 
+### want to submit a proxy link? submit [here](https://forms.gle/LXULxcVVFUbNA5nR6)
+
 ### credit for the lists:
 [byepasshub](https://github.com/wea-f/ByePassHub/tree/main)
 
