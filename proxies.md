@@ -9,6 +9,7 @@
 
 [scpwolf](sites.google.com/view/wolfunblock)
 
+---
 
 ## shortcuts:
 
@@ -18,11 +19,16 @@
 
 [art class](https://github.com/ponkoi/nthub/blob/main/proxies.md#art-class--games-apps-proxy)
 
-
+---
 
 ### this repo will be updated frequently!! upd log below
 
 ### UPDATES:
+
+**March 8th**
+**Added proxies and movies**
+
+---
 
 
 
