@@ -1,6 +1,11 @@
 ## everything below is not always unblocked!!
 ## so js search through and find something that works, or something that suits you.
 
+extra: some of this is copied from other proxy lists, some of them ive found.
+
+### credit for the lists:
+## byepasshub
+## scpwolf
 
 
 ### kitty cat proxy | my personal fav | newer proxy
