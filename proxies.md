@@ -1,9 +1,8 @@
-## everything below is not always unblocked!!
-## so js search through and find something that works, or something that suits you.
+## everything below is not always unblocked!! so js search through and find something that works, or something that suits you.
 
-## extra: some of this is copied from other proxy lists, some of them ive found.
+## heads up: some of this is copied from other proxy lists, some of them ive found.
 
-## credit for the lists:
+### credit for the lists:
 [byepasshub](https://github.com/wea-f/ByePassHub/tree/main)
 
 [scpwolf](sites.google.com/view/wolfunblock)
