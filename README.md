@@ -1,4 +1,4 @@
-# nthub | school exploits and proxies
+# ponkoihub | school exploits and proxies
 
 ## - [movie sites](https://github.com/ponkoi/nthub/blob/main/moviesites.md) <br>
 
