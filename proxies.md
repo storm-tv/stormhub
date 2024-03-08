@@ -10,10 +10,26 @@
 
 ### kitty cat proxy | my personal fav | newer proxy
 
-
+https://giddyismyman.gurdit.com/ <br>
 https://imakittykittycat.gurdit.com/  <br>
 https://thejpstoreiscool.gurdit.com/  <br>
 https://baonguyenisdabest.gurdit.com/ <br>
 https://goguardianislovely.gurdit.com/ <br>
 https://mychineseboy.gurdit.com/ <br>
-https://giddyismyman.gurdit.com/ <br>
+
+
+### emerald | weird ads lolol
+
+https://greatestaxeofflox.thelmadejager.co.za/ <br>
+https://how-to-make.soapagent.com/  <br>
+https://oiuytrewq.pakasak.com/ <br>
+https://morphputtoswell.uk.to/ <br>
+https://hoselsaintoscar.uk.to/ <br>
+**newer link** https://bloxfruits.blueshadows.cl/ <br>
+**newer link** https://blazer.dcmusic.ca/ <br>)https://greatestaxeofflox.thelmadejager.co.za/ <br>
+https://how-to-make.soapagent.com/  <br>
+https://oiuytrewq.pakasak.com/ <br>
+https://morphputtoswell.uk.to/ <br>
+https://hoselsaintoscar.uk.to/ <br>
+**newer link** https://bloxfruits.blueshadows.cl/ <br>
+**newer link** https://blazer.dcmusic.ca/ <br>
