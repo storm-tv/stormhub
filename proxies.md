@@ -20,7 +20,7 @@
 
 
 
-### this repo will be updated frequently!! ### upd log below
+### this repo will be updated frequently!! upd log below
 
 ### UPDATES:
 
