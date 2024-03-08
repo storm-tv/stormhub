@@ -1,13 +1,8 @@
-# nthub
+# nthub | school exploits and proxies
 
-hello all, welcome to nthub.
+## - [movie sites](https://github.com/ponkoi/nthub/blob/main/moviesites.md)
 
-this repo is all about school exploits which you can use when you hate being blocked.
+## - [proxies](https://github.com/ponkoi/nthub/blob/main/proxies.md)
 
-or ur js bored as hell.
+## - [exploits](https://github.com/ponkoi/nthub/blob/main/exploits.md)
 
-there will be folders dedicated to different catagories of exploits for your school computer, or js for fun.
-
-- ponkoi
-
-enjoy :)
