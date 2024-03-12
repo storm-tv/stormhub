@@ -13,11 +13,11 @@
 
 ## shortcuts:
 
-[kitty cat](https://github.com/ponkoi/nthub/blob/main/proxies.md#kitty-cat--my-personal-fav--games-apps-fast-proxy)
+#### [kitty cat](https://github.com/ponkoi/nthub/blob/main/proxies.md#kitty-cat--my-personal-fav--games-apps-fast-proxy)
 
-[emerald](https://github.com/ponkoi/nthub/blob/main/proxies.md#emerald--weird-ads-lolol-but-works-good--games-apps-proxy)
+#### [emerald](https://github.com/ponkoi/nthub/blob/main/proxies.md#emerald--weird-ads-lolol-but-works-good--games-apps-proxy)
 
-[art class](https://github.com/ponkoi/nthub/blob/main/proxies.md#art-class--games-apps-proxy)
+#### [art class](https://github.com/ponkoi/nthub/blob/main/proxies.md#art-class--games-apps-proxy)
 
 ---
 
