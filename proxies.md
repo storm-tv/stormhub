@@ -5,9 +5,9 @@
 ### want to submit a proxy link? submit [here](https://forms.gle/LXULxcVVFUbNA5nR6)
 
 ### credit for the lists:
-[byepasshub](https://github.com/wea-f/ByePassHub/tree/main)
+#### [byepasshub](https://github.com/wea-f/ByePassHub/tree/main)
 
-[scpwolf](sites.google.com/view/wolfunblock)
+#### [scpwolf](sites.google.com/view/wolfunblock)
 
 ---
 
