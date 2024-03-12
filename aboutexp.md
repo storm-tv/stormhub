@@ -1,6 +1,6 @@
 # exploits finally here!! yay!! (i guess)
 
-## shortcuts:
+## shortcuts (or js go through the folder:
 
 #### [securly bypass + insecurly]()
 
