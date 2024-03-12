@@ -6,3 +6,7 @@
 
 ## - [exploits](https://github.com/ponkoi/nthub/blob/main/exploits.md) <br>
 
+
+### update log
+
+## march 12 | updated and adding stuff in [exploits.md](https://github.com/ponkoi/ponkoihub/blob/main/exploits.md)
