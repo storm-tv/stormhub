@@ -1,11 +1,31 @@
-.container {
-  height: 100%;
-  width: 100%;
-  display: flex;
-  position: fixed;
-  align-items: center;
-  justify-content: center;
-}
-<div class="container">
-  <div>centered text!</div>
-</div>
+<!DOCTYPE html>
+<html lang="de">
+    <head>
+        <title>Hello World</title>
+        <style>
+
+        html, body {
+            height: 100%;
+            margin: 0;
+            padding: 0;
+            width: 100%;
+        }
+
+        body {
+            display: table;
+        }
+
+        .my-block {
+            text-align: center;
+            display: table-cell;
+            vertical-align: middle;
+        }
+        </style>
+    </head>
+    <body>
+    <div class="my-block">
+       WORD1<br />
+       WORDWORDWORDWORD2
+    </div>
+    </body>
+</html>
