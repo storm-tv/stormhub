@@ -19,6 +19,8 @@
 
 #### [art class](https://github.com/ponkoi/nthub/blob/main/proxies.md#art-class--games-apps-proxy)
 
+#### [rammerhead]()
+
 ---
 
 ### this repo will be updated frequently!! upd log below
@@ -132,3 +134,47 @@ https://funfunfun.havefun.ch/ <br>
 **newer link** https://whimsical-rocket.brightmindsit.com/ <br>
 **newer link** https://packed-espresso.breakingpar.com/ <br>
 **newer link** https://radiant-pendulum.chefteng.com/ <br>
+
+
+### rammerhead | browser
+https://donuts.pastrypowered.com/ <br>
+https://forbmskids.dietpc.org/ <br>
+https://gooseprobro.8bit.ca/ <br>
+https://hamuneko86-test.ddo.jp/ <br>
+https://pineapple-pizza.fsagc.org/ <br>
+https://rammerhead11.uk.to/ <br>
+https://medmop.blacknapkins.org/ <br>
+https://boringsuit-mathwork.thelmadejager.co.za/ <br>
+https://math.cky.cl/ <br>
+https://soraapp.com.breakingpar.com/ <br>
+https://gogaurdianaddresscomingsoon.rahulsj.com/ <br>
+https://duckiscute.duckdns.org <br>
+https://learning.math.scottjungwirth.com/ <br>
+https://y4hrb.saltbush.com/ <br>
+https://history.mr.g.scottjungwirth.com/ <br>
+https://disforyall.nullexistence.net/ <br>
+https://help.open-window.de/ <br>
+https://classes.estiloescencial.cl/ <br>
+https://tmobile.fetemobile.ca/ <br>
+https://bigblackoiledpapi.wikilegia.com/ <br>
+https://yourmomlikesballs.dansted.org/ <br>
+https://southwest.guitarasia.com/ <br>
+https://glazed.info.pastrypowered.com/ <br>
+https://abdela.dietpc.org/<br>
+https://abdel.dietpc.org/<br>
+https://free-instructions-how.to.make.soapagent.com/<br>
+https://outdoorwildlife.guitarasia.com/<br>
+https://11-10-10.apps.dj/ <br>
+https://takumi0401.ddo.jp/ <br>
+https://doneven.spacekiller.com/  <br>
+https://gannon.norushcharge.com/  <br>
+https://hidenetsurfra.vaizer.cl/ <br> 
+**newer link** https://malli-is-awesome.fr.nullexistence.net/ <br>
+**newer link** https://hoodirony.guitarasia.com/ <br>
+**newer link** https://yodisfr.question.blueshadows.cl/ <br>
+**newer link** https://reading.info.nullexistence.net/ <br>
+**newer link** https://nan-nonexistent.nullexistence.net/ <br>
+**newer link** https://uhmactually.nullexistence.net/ <br>
+**newer link** https://math.dcmusic.ca/ <br>
+**newer link** https://broimtiredhelpme.scottexteriors.com/ <br>
+**newer link** https://littleteehee-evan.blueshadows.cl/ <br><br>
