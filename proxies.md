@@ -44,6 +44,11 @@
 
 ### kitty cat | my personal fav | games, apps, fast proxy
 
+**for some reason added username and password to disguise it lol**
+
+**username:** `kittycatclub` <br>
+**password:** `welovekittens` <br>
+
 https://giddyismyman.gurdit.com/ <br>
 https://imakittykittycat.gurdit.com/  <br>
 https://thejpstoreiscool.gurdit.com/  <br>
