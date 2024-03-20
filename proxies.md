@@ -48,9 +48,12 @@
 
 **for some reason added username and password to disguise it lol**
 
+
+
 **username:** `kittycatclub` <br>
 **password:** `welovekittens` <br>
 
+**SHUTTING DOWN SOON DUE TO NEW VPS**
 https://giddyismyman.gurdit.com/ <br>
 https://imakittykittycat.gurdit.com/  <br>
 https://thejpstoreiscool.gurdit.com/  <br>
