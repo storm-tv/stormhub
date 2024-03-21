@@ -6,7 +6,7 @@
 
 ## - [exploits](https://github.com/ponkoi/nthub/blob/main/exploits.md) <br>
 
-## ousd ur stepping up ur game holy
+## schools in cali stepping up their game making it hard holy
 
 ## update log
 
