@@ -17,42 +17,36 @@
 
 ## selenite (highly reccomended)
 
-blueshadows.cl links
 https://projects.blueshadows.cl/
 https://telescopes.blueshadows.cl/
 https://fideos.projects.blueshadows.cl
 
-garamanage.com links
+
 https://thevoicesaregettinglouder.garmanage.com/
 https://sizing.tool.garmanage.com/
 
-potomacriversafetycommittee.org links
+
 https://safety.guidelines.potomacriversafetycommittee.org/
 https://information.potomacriversafetycommittee.org/
 https://about.cause.potomacriversafetycommittee.org/
 https://members.board.potomacriversafetycommittee.org/
 https://checkout.donate.potomacriversafetycommittee.org/
 
- tafca.co.uk links
  https://calendar.matches.tafca.co.uk/
  https://clubs.tafca.co.uk/
  https://pawn.pieces.tafca.co.uk
 
   
 
-essexregional.org links
 https://form.contact.essexregional.org
 https://staff.about.essexregional.org/
 
-steveharrop.co.uk links
 https://art.portfolio.steveharrop.co.uk/
 https://about.blog.steveharrop.co.uk/
 
-dansted.org links
 https://results.search.dansted.org/
 https://rss.feed.link.dansted.org/
 
-rugelegychessclub.co.uk links
  https://archive.puzzles.rugeleychessclub.co.uk/
  https://rug.rugeleychessclub.co.uk/
  https://rugby.rugeleychessclub.co.uk/
