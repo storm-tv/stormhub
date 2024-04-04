@@ -21,10 +21,8 @@ https://projects.blueshadows.cl/
  https://telescopes.blueshadows.cl/
  https://fideos.projects.blueshadows.cl
 
-
  https://thevoicesaregettinglouder.garmanage.com/
  https://sizing.tool.garmanage.com/
-
 
  https://safety.guidelines.potomacriversafetycommittee.org/
  https://information.potomacriversafetycommittee.org/
@@ -35,8 +33,6 @@ https://projects.blueshadows.cl/
  https://calendar.matches.tafca.co.uk/
  https://clubs.tafca.co.uk/
  https://pawn.pieces.tafca.co.uk
-
-  
 
  https://form.contact.essexregional.org
  https://staff.about.essexregional.org/
@@ -51,7 +47,6 @@ https://projects.blueshadows.cl/
  https://rug.rugeleychessclub.co.uk/
  https://rugby.rugeleychessclub.co.uk/
  https://practice.chess.rugeleychessclub.co.uk/
-
 
  https://contact.zverovich.net/
  https://deals.youramys.com/
