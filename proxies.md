@@ -55,14 +55,8 @@
 **username:** `kittycatclub` <br>
 **password:** `welovekittens` <br>
 
-**SHUTTING DOWN SOON DUE TO NEW VPS**
+**old links shut down due to new vps**
 
-https://giddyismyman.gurdit.com/ <br>
-https://imakittykittycat.gurdit.com/  <br>
-https://thejpstoreiscool.gurdit.com/  <br>
-https://baonguyenisdabest.gurdit.com/ <br>
-https://goguardianislovely.gurdit.com/ <br>
-https://mychineseboy.gurdit.com/ <br>
 **newer link** https://takingalottothebankbaby.bellyfatcat.com/ <br>
 **newer link** https://i.am.knowing.paulsfamilyhistory.com/  <br>
 **newer link** https://eveisanonoword.paulsfamilyhistory.com/ <br>
