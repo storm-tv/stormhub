@@ -70,6 +70,8 @@
 **newer link** https://i.am.knowing.paulsfamilyhistory.com/ <br>
 <br>
 
+**^  [top ^]()**
+
 
 ### emerald | weird ads lolol but works good!! | games, apps, proxy
 
@@ -211,4 +213,24 @@ https://zatoga.lareida.org/ <br>
 ### apponfly | free pc inside ur browser | free trial
 
 **newer link** https://app.apponfly.com/trial <br>
+
+### abyss | proxy w/ ads 💀
+##### idialup.co.za links:
+https://swear.idialup.co.za/ <br>
+https://trial.idialup.co.za/ <br>
+https://chingchong.idialup.co.za/ <br>
+**newer link** https://stage.idialup.co.za/ <br>
+**newer link** https://trait.idialup.co.za/ <br>
+**newer link** https://chingchong.idialup.co.za/ <br>
+**newer link** https://prove.idialup.co.za/ <br>
+**newer link** https://rider.idialup.co.za/ <br>
+**newer link** https://forge.idialup.co.za/ <br>
+**newer link** https://grind.idialup.co.za/ <br>
+**newer link** https://child.idialup.co.za/ <br>
+**newer link** https://glide.idialup.co.za/ <br>
+**newer link** https://worth.idialup.co.za/ <br>
+**newer link** https://equip.idialup.co.za/ <br>
+**newer link** https://grand.idialup.co.za/ <br>
+**newer link** https://tribe.idialup.co.za/ <br>
+**newer link** https://ratio.idialup.co.za/ <br>
 
