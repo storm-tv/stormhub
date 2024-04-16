@@ -61,6 +61,16 @@ https://thejpstoreiscool.gurdit.com/  <br>
 https://baonguyenisdabest.gurdit.com/ <br>
 https://goguardianislovely.gurdit.com/ <br>
 https://mychineseboy.gurdit.com/ <br>
+**newer link** https://takingalottothebankbaby.bellyfatcat.com/ <br>
+**newer link** https://i.am.knowing.paulsfamilyhistory.com/  <br>
+**newer link** https://eveisanonoword.paulsfamilyhistory.com/ <br>
+**newer link** https://sendatexttoyourdm.bellyfatcat.com/ <br>
+**newer link** https://samandcolbyareok.paulsfamilyhistory.com/ <br>
+**newer link** https://i.hope.i-have-a-cool.catt.bellyfatcat.com/ <br>
+**newer link** https://iphoneorandroid.paulsfamilyhistory.com/ <br>
+**newer link** https://gannonistoocool.minecraft.pe/ <br>
+**newer link** https://i.am.knowing.paulsfamilyhistory.com/ <br>
+<br>
 
 
 ### emerald | weird ads lolol but works good!! | games, apps, proxy
