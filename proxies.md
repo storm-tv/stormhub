@@ -208,7 +208,7 @@ https://zatoga.learn.trivialime.com/ <br>
 https://thyguy.blacknapkins.org/ <br>
 https://zatoga.lareida.org/ <br>
 
-### apponfly | unblocked chrome basically | free trial
+### apponfly | free pc inside ur browser | free trial
 
 **newer link** https://app.apponfly.com/trial <br>
 
