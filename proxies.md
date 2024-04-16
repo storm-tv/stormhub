@@ -21,6 +21,8 @@
 
 #### [rammerhead](https://github.com/ponkoi/ponkoihub/blob/main/proxies.md#rammerhead--browser)
 
+#### [zatoga]()
+
 ---
 
 ### this repo will be updated frequently!! upd log below
@@ -188,3 +190,21 @@ https://hidenetsurfra.vaizer.cl/ <br>
 **newer link** https://math.dcmusic.ca/ <br>
 **newer link** https://broimtiredhelpme.scottexteriors.com/ <br>
 **newer link** https://littleteehee-evan.blueshadows.cl/ <br><br>
+
+### zatoga | fast loading and hq proxy | ft rammerhead
+
+https://zatoga-guffy.largent.org/ <br>
+https://zatoga-iamguff.largent.org/ <br>
+https://zatoga-guffishim.largent.org/ <br>
+https://zatoga-wguffy.largent.org/ <br>
+https://zatoga-guff-w.largent.org/ <br>
+https://zatoga-guffyisw.largent.org/ <br>
+https://freebsdlearning.nursph.org/ <br>
+https://interact.learn.trivialime.com/ <br>
+https://zatoga.apocalypto.org.uk/ <br>
+https://dominiclol.jonmills.org/ <br>
+https://dashabunga.site.com.bornsecret.com/  <br>
+https://zatoga.learn.trivialime.com/ <br>
+https://thyguy.blacknapkins.org/ <br>
+https://zatoga.lareida.org/ <br>
+
