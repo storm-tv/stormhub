@@ -70,7 +70,7 @@
 **newer link** https://i.am.knowing.paulsfamilyhistory.com/ <br>
 <br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 
 ### emerald | weird ads lolol but works good!! | games, apps, proxy
@@ -90,7 +90,7 @@ https://hoselsaintoscar.uk.to/ <br>
 **newer link** https://bloxfruits.blueshadows.cl/ <br>
 **newer link** https://blazer.dcmusic.ca/ <br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ### art class | games, apps, proxy
 **newer link** https://schoolonline.us.to/ <br>
@@ -150,7 +150,7 @@ https://funfunfun.havefun.ch/ <br>
 **newer link** https://packed-espresso.breakingpar.com/ <br>
 **newer link** https://radiant-pendulum.chefteng.com/ <br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ### rammerhead | browser
 https://donuts.pastrypowered.com/ <br>
@@ -195,7 +195,7 @@ https://hidenetsurfra.vaizer.cl/ <br>
 **newer link** https://broimtiredhelpme.scottexteriors.com/ <br>
 **newer link** https://littleteehee-evan.blueshadows.cl/ <br><br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ### zatoga | fast loading and hq proxy | ft rammerhead
 
@@ -218,7 +218,7 @@ https://zatoga.lareida.org/ <br>
 
 **newer link** https://app.apponfly.com/trial <br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ### abyss | proxy w/ ads 💀
 ##### idialup.co.za links:
@@ -240,6 +240,6 @@ https://chingchong.idialup.co.za/ <br>
 **newer link** https://tribe.idialup.co.za/ <br>
 **newer link** https://ratio.idialup.co.za/ <br>
 
-**[^top ^]()**
+**[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ```list ends here now.. until next upd!```
