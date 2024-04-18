@@ -242,4 +242,17 @@ https://chingchong.idialup.co.za/ <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
+### equinox | games + proxy
+http://deltamath.unibutton.com/ <br>
+**NEW** https://xutufj9rugj.xn--72cg7bdd3bro6b3ab9c8btw4x.com/ <br>
+**NEW** https://your.garmanage.com/ <br>
+**NEW** https://are.breakingpar.com/ <br>
+**NEW** https://blockifyourgay.fsagc.org/ <br>
+**NEW** https://thebeta.duckdns.org/ <br>
+**NEW** https://learn.gurdit.com/ <br>
+**NEW** https://info.sundby.com/ <br>
+**NEW** http://ihateschool1.us.to/ <br>
+
+
+
 ```list ends here now.. until next upd!```
