@@ -70,7 +70,7 @@
 **newer link** https://i.am.knowing.paulsfamilyhistory.com/ <br>
 <br>
 
-**^  [top ^]()**
+**[^top ^]()**
 
 
 ### emerald | weird ads lolol but works good!! | games, apps, proxy
@@ -90,6 +90,7 @@ https://hoselsaintoscar.uk.to/ <br>
 **newer link** https://bloxfruits.blueshadows.cl/ <br>
 **newer link** https://blazer.dcmusic.ca/ <br>
 
+**[^top ^]()**
 
 ### art class | games, apps, proxy
 **newer link** https://schoolonline.us.to/ <br>
@@ -149,6 +150,7 @@ https://funfunfun.havefun.ch/ <br>
 **newer link** https://packed-espresso.breakingpar.com/ <br>
 **newer link** https://radiant-pendulum.chefteng.com/ <br>
 
+**[^top ^]()**
 
 ### rammerhead | browser
 https://donuts.pastrypowered.com/ <br>
@@ -193,6 +195,8 @@ https://hidenetsurfra.vaizer.cl/ <br>
 **newer link** https://broimtiredhelpme.scottexteriors.com/ <br>
 **newer link** https://littleteehee-evan.blueshadows.cl/ <br><br>
 
+**[^top ^]()**
+
 ### zatoga | fast loading and hq proxy | ft rammerhead
 
 https://zatoga-guffy.largent.org/ <br>
@@ -214,6 +218,8 @@ https://zatoga.lareida.org/ <br>
 
 **newer link** https://app.apponfly.com/trial <br>
 
+**[^top ^]()**
+
 ### abyss | proxy w/ ads 💀
 ##### idialup.co.za links:
 https://swear.idialup.co.za/ <br>
@@ -234,3 +240,6 @@ https://chingchong.idialup.co.za/ <br>
 **newer link** https://tribe.idialup.co.za/ <br>
 **newer link** https://ratio.idialup.co.za/ <br>
 
+**[^top ^]()**
+
+```list ends here now.. until next upd!```
