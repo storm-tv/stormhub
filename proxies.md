@@ -23,6 +23,8 @@
 
 #### [zatoga]()
 
+#### [android emulator]()
+
 ---
 
 ### this repo will be updated frequently!! upd log below
@@ -32,6 +34,10 @@
 **march 8th | added proxies and movies**
 
 **april 16 | shit ton of new proxies!!!**
+
+**may 2 | added new proxies, adding new games soon.
+
+## ADDING SOMETHING HUGE SOON.. STAY TUNED. (star pls)
 
 ---
 
