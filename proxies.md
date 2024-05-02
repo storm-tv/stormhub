@@ -65,15 +65,15 @@
 
 **old links shut down due to new vps**
 
-**newer link**https://takingalottothebankbaby.bellyfatcat.com/ <br>
-**newer link**https://i.am.knowing.paulsfamilyhistory.com/  <br>
-**newer link**https://eveisanonoword.paulsfamilyhistory.com/ <br>
-**newer link**https://sendatexttoyourdm.bellyfatcat.com/ <br>
-**newer link**https://samandcolbyareok.paulsfamilyhistory.com/ <br>
-**newer link**https://i.hope.i-have-a-cool.catt.bellyfatcat.com/ <br>
-**newer link**https://iphoneorandroid.paulsfamilyhistory.com/ <br>
-**newer link**https://gannonistoocool.minecraft.pe/ <br>
-**newer link**https://i.am.knowing.paulsfamilyhistory.com/ <br>
+https://takingalottothebankbaby.bellyfatcat.com/ <br>
+https://i.am.knowing.paulsfamilyhistory.com/  <br>
+https://eveisanonoword.paulsfamilyhistory.com/ <br>
+https://sendatexttoyourdm.bellyfatcat.com/ <br>
+https://samandcolbyareok.paulsfamilyhistory.com/ <br>
+https://i.hope.i-have-a-cool.catt.bellyfatcat.com/ <br>
+https://iphoneorandroid.paulsfamilyhistory.com/ <br>
+https://gannonistoocool.minecraft.pe/ <br>
+https://i.am.knowing.paulsfamilyhistory.com/ <br>
 <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
