@@ -86,20 +86,20 @@ https://how-to-make.soapagent.com/  <br>
 https://oiuytrewq.pakasak.com/ <br>
 https://morphputtoswell.uk.to/ <br>
 https://hoselsaintoscar.uk.to/ <br>
-**newer link**https://bloxfruits.blueshadows.cl/ <br>
-**newer link**https://blazer.dcmusic.ca/ <br>
+https://bloxfruits.blueshadows.cl/ <br>
+https://blazer.dcmusic.ca/ <br>
 https://greatestaxeofflox.thelmadejager.co.za/ <br>
 https://how-to-make.soapagent.com/  <br>
 https://oiuytrewq.pakasak.com/ <br>
 https://morphputtoswell.uk.to/ <br>
 https://hoselsaintoscar.uk.to/ <br>
-**newer link**https://bloxfruits.blueshadows.cl/ <br>
-**newer link**https://blazer.dcmusic.ca/ <br>
+https://bloxfruits.blueshadows.cl/ <br>
+https://blazer.dcmusic.ca/ <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
 ### art class | games, apps, proxy
-**newer link**https://schoolonline.us.to/ <br>
+https://schoolonline.us.to/ <br>
 https://artclass.hop.sh <br>
 https://subscribe.sciencesimplified.pro/ <br>
 https://wick.hop.sh <br>
@@ -119,15 +119,15 @@ https://dynamic-peacock.fossil-bug.com/ <br>
 https://activities.math.web.id/ <br>
 https://frankisbig.00z.us/ <br>
 https://funfunfun.havefun.ch/ <br>
-**newer link**https://schoolonline.us.to/ <br>
-**newer link**https://frankfarted.us.to/ <br>
-**newer link**https://geometrical.pattern.us.to/ <br>
-**newer link**https://mysterious-orchid.larryerdmann.com/ <br>
-**newer link**https://google-classroom.privatedns.org/ <br>
-**newer link**https://playful-aurora.stcath.net/ <br>
-**newer link**https://whimsical-rocket.brightmindsit.com/ <br>
-**newer link**https://packed-espresso.breakingpar.com/ <br>
-**newer link**https://radiant-pendulum.chefteng.com/ <br>
+https://schoolonline.us.to/ <br>
+https://frankfarted.us.to/ <br>
+https://geometrical.pattern.us.to/ <br>
+https://mysterious-orchid.larryerdmann.com/ <br>
+https://google-classroom.privatedns.org/ <br>
+https://playful-aurora.stcath.net/ <br>
+https://whimsical-rocket.brightmindsit.com/ <br>
+https://packed-espresso.breakingpar.com/ <br>
+https://radiant-pendulum.chefteng.com/ <br>
 https://artclass.hop.sh <br>
 https://subscribe.sciencesimplified.pro/ <br>
 https://wick.hop.sh <br>
@@ -147,14 +147,14 @@ https://dynamic-peacock.fossil-bug.com/ <br>
 https://activities.math.web.id/ <br>
 https://frankisbig.00z.us/ <br>
 https://funfunfun.havefun.ch/ <br>
-**newer link**https://frankfarted.us.to/ <br>
-**newer link**https://geometrical.pattern.us.to/ <br>
-**newer link**https://mysterious-orchid.larryerdmann.com/ <br>
-**newer link**https://google-classroom.privatedns.org/ <br>
-**newer link**https://playful-aurora.stcath.net/ <br>
-**newer link**https://whimsical-rocket.brightmindsit.com/ <br>
-**newer link**https://packed-espresso.breakingpar.com/ <br>
-**newer link**https://radiant-pendulum.chefteng.com/ <br>
+https://frankfarted.us.to/ <br>
+https://geometrical.pattern.us.to/ <br>
+https://mysterious-orchid.larryerdmann.com/ <br>
+https://google-classroom.privatedns.org/ <br>
+https://playful-aurora.stcath.net/ <br>
+https://whimsical-rocket.brightmindsit.com/ <br>
+https://packed-espresso.breakingpar.com/ <br>
+https://radiant-pendulum.chefteng.com/ <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
@@ -191,15 +191,15 @@ https://takumi0401.ddo.jp/ <br>
 https://doneven.spacekiller.com/  <br>
 https://gannon.norushcharge.com/  <br>
 https://hidenetsurfra.vaizer.cl/ <br> 
-**newer link**https://malli-is-awesome.fr.nullexistence.net/ <br>
-**newer link**https://hoodirony.guitarasia.com/ <br>
-**newer link**https://yodisfr.question.blueshadows.cl/ <br>
-**newer link**https://reading.info.nullexistence.net/ <br>
-**newer link**https://nan-nonexistent.nullexistence.net/ <br>
-**newer link**https://uhmactually.nullexistence.net/ <br>
-**newer link**https://math.dcmusic.ca/ <br>
-**newer link**https://broimtiredhelpme.scottexteriors.com/ <br>
-**newer link**https://littleteehee-evan.blueshadows.cl/ <br><br>
+https://malli-is-awesome.fr.nullexistence.net/ <br>
+https://hoodirony.guitarasia.com/ <br>
+https://yodisfr.question.blueshadows.cl/ <br>
+https://reading.info.nullexistence.net/ <br>
+https://nan-nonexistent.nullexistence.net/ <br>
+https://uhmactually.nullexistence.net/ <br>
+https://math.dcmusic.ca/ <br>
+https://broimtiredhelpme.scottexteriors.com/ <br>
+https://littleteehee-evan.blueshadows.cl/ <br><br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
@@ -222,7 +222,7 @@ https://zatoga.lareida.org/ <br>
 
 ### apponfly | free pc inside ur browser | free trial
 
-**newer link**https://app.apponfly.com/trial <br>
+https://app.apponfly.com/trial <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
@@ -231,20 +231,20 @@ https://zatoga.lareida.org/ <br>
 https://swear.idialup.co.za/ <br>
 https://trial.idialup.co.za/ <br>
 https://chingchong.idialup.co.za/ <br>
-**newer link**https://stage.idialup.co.za/ <br>
-**newer link**https://trait.idialup.co.za/ <br>
-**newer link**https://chingchong.idialup.co.za/ <br>
-**newer link**https://prove.idialup.co.za/ <br>
-**newer link**https://rider.idialup.co.za/ <br>
-**newer link**https://forge.idialup.co.za/ <br>
-**newer link**https://grind.idialup.co.za/ <br>
-**newer link**https://child.idialup.co.za/ <br>
-**newer link**https://glide.idialup.co.za/ <br>
-**newer link**https://worth.idialup.co.za/ <br>
-**newer link**https://equip.idialup.co.za/ <br>
-**newer link**https://grand.idialup.co.za/ <br>
-**newer link**https://tribe.idialup.co.za/ <br>
-**newer link**https://ratio.idialup.co.za/ <br>
+https://stage.idialup.co.za/ <br>
+https://trait.idialup.co.za/ <br>
+https://chingchong.idialup.co.za/ <br>
+https://prove.idialup.co.za/ <br>
+https://rider.idialup.co.za/ <br>
+https://forge.idialup.co.za/ <br>
+https://grind.idialup.co.za/ <br>
+https://child.idialup.co.za/ <br>
+https://glide.idialup.co.za/ <br>
+https://worth.idialup.co.za/ <br>
+https://equip.idialup.co.za/ <br>
+https://grand.idialup.co.za/ <br>
+https://tribe.idialup.co.za/ <br>
+https://ratio.idialup.co.za/ <br>
 
 **[^ top ^](https://github.com/storm-tv/stormhub/blob/main/proxies.md#shortcuts)**
 
