@@ -250,14 +250,14 @@ https://ratio.idialup.co.za/ <br>
 
 ### equinox | games + proxy
 http://deltamath.unibutton.com/ <br>
-**NEW**https://xutufj9rugj.xn--72cg7bdd3bro6b3ab9c8btw4x.com/ <br>
-**NEW**https://your.garmanage.com/ <br>
-**NEW**https://are.breakingpar.com/ <br>
-**NEW**https://blockifyourgay.fsagc.org/ <br>
-**NEW**https://thebeta.duckdns.org/ <br>
-**NEW**https://learn.gurdit.com/ <br>
-**NEW**https://info.sundby.com/ <br>
-**NEW** http://ihateschool1.us.to/ <br>
+https://xutufj9rugj.xn--72cg7bdd3bro6b3ab9c8btw4x.com/ <br>
+https://your.garmanage.com/ <br>
+https://are.breakingpar.com/ <br>
+https://blockifyourgay.fsagc.org/ <br>
+https://thebeta.duckdns.org/ <br>
+https://learn.gurdit.com/ <br>
+https://info.sundby.com/ <br>
+ http://ihateschool1.us.to/ <br>
 
 ### sunset network | games + apps
 https://woofontop.ve3.info/ <br>
