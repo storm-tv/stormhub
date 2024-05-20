@@ -65,7 +65,9 @@
 
 **old links shut down due to new vps**
 
-https://takingalottothebankbaby.bellyfatcat.com/ <br> //
+**none work as if may 20 (new vps??)**
+
+https://takingalottothebankbaby.bellyfatcat.com/ <br>
 https://i.am.knowing.paulsfamilyhistory.com/  <br>
 https://eveisanonoword.paulsfamilyhistory.com/ <br>
 https://sendatexttoyourdm.bellyfatcat.com/ <br>
